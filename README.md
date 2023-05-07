@@ -1,5 +1,5 @@
 # ANAYA-PAGE-SOURCE
-V.1.0 LEAKED BY S1LENT AND 0x612 $$$
+V.1.0 LEAKED BY BLUES1REN AND 0x612 $$$
 
 https://www.youtube.com/watch?v=Av0S2wmfvaY&ab_channel=NerveAgent-Topic
 
