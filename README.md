@@ -1,5 +1,6 @@
 # ANAYA-PAGE-SOURCE
-V.1.0 LEAKED BY BLUES1REN AND 0x612 $$$
+V.1.0 LEAKED BY BLUES1REN AND 0x621 $$$
+renamed assets because we are dumb and cant dump a html code correctly
 
 https://www.youtube.com/watch?v=Av0S2wmfvaY&ab_channel=NerveAgent-Topic
 
